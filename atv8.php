@@ -1,1 +1,0 @@
-<!-- mais uma atividade infernal> Israely odeia a gnt -->
